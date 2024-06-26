@@ -1,4 +1,4 @@
-
+💟BOAS VINDA AO MEU PERFIL💟
 
 🤟 ola prazer, meu nome e Emanoely gabriei
 📘estou estudando no alura
